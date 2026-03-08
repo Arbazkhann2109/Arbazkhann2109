@@ -1,4 +1,4 @@
-# 💫 Hi 👋, I'm Imran Alam
+# 💫 Hi 👋, I'm Arbaz Khan
 **A passionate Java Developer  || Software Engineer ||Vibe Coder from India**
 
 Email Me 👉 ✉️ **arbazkhann2109@gmail.com** For Collaboration/Project or Anything Else. 😊😊
